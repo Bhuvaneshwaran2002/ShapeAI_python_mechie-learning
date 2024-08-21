@@ -1,1 +1,1 @@
-# ShapeAI_python_mechie-learning
+https://docs.google.com/document/d/1xzEg4Hy29JAejuHFJ93gxCkq78LfJBqPtdzUz_CyH0/edit?usp=sharing 
